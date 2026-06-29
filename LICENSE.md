@@ -1,4 +1,4 @@
-
+Experience anime card clash like never before with anime card clash Scripts advanced, the #1 Script. Includes teleport and instant win for unbeatable
 
 
 
